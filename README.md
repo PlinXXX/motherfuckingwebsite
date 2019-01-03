@@ -1,1 +1,1 @@
-# motherfuckingwebsite
+#https://plinxxx.github.io/motherfuckingwebsite/
